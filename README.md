@@ -1,1 +1,1 @@
-# Taller-de-Dise-o-Digital
+# Taller-de-Diseno-Digital
